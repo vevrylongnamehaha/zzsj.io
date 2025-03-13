@@ -2,6 +2,9 @@
 
 最新地址：[zzsj.vip](https://www.zzsjjsq.com/user/register?code=BI3fOvIP)
 
+## 注意 ## 
+此链接中包含邀请活动返利，加QQ1791667529，提成佣金等分，即购买后佣金返现后平分
+
 ## 简介
 
 掌中世界机场高价购入IPLC内网专线，精心优化传输算法，只为您上网更爽快。最先进流量隐藏技术，将VPN穿墙流量化身网页浏览，免于防火墙干扰。私密浏览？浏览器无痕模式不够。我们的VPN为您隐藏IP以掩藏踪迹。节点全解锁Netflix、Tiktok等流媒体服务。你可从任何地方欣赏异国限定媒体节目。支持Android、iOS、MacOS、Windows、Linux、路由器。
